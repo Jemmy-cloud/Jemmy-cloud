@@ -10,7 +10,7 @@
 
 - 👯 I’m looking to collaborate **with other content creators**
 
-- - 🥅 2022 Goals: **Learn more about AI**
+- 🥅 2022 Goals: **Learn more about AI**
 
 - 📝 I regularly write articles on **https://www.linkedin.com/in/ahmed-basouny-b431b8221/**
 
