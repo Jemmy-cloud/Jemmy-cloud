@@ -12,6 +12,8 @@
 
 - 🥅 2022 Goals: **Learn more about AI**
 
+- ⚡ Fun fact: I love to draw and play guitar / drums
+
 - 📝 I regularly write articles on **https://www.linkedin.com/in/ahmed-basouny-b431b8221/**
 
 <h3 align="left">Connect with me:</h3>
